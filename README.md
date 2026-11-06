@@ -1,1 +1,1 @@
-https://andbui.com/
+https://andbui.com
